@@ -12,11 +12,7 @@ Também é na escola o lugar onde os reflexos da sociedade fazem com que se crie
 
 Na escola, os cruéis padrões de beleza e comportamento ditados pela sociedade aparecem como normas. Em geral, um grupo dominante reafirma e dita esses padrões dentro do âmbito escolar, fazendo com que se estabeleça uma regra (a normalidade) e tudo aquilo que fuja dessa regra seja considerado como inferior e digno de sofrimento e exclusão. O grau de popularidade dos que se consideram superiores e a sua maior aceitação pelo grupo fazem com que eles se sintam no direito de tratar mal aqueles que não são populares e não se enquadram no padrão do grupo.
 
-![](https://youtu.be/psieH5qBIpk)
-
-
-
-Como solucionar o bullying?
+![](https://github.com/taisbelun22/Prototipo-I/assets/114584009/178808c8-5d34-43e6-a11f-0293c223365a)
 
 A violência não é combatida com mais violência. Às vezes, punições aos agressores são necessárias quando estes extrapolam qualquer limite razoável, porém, na maioria das vezes, os agressores também são jovens que sofrem por algum motivo. Nesses casos, a melhor maneira de solucionar o problema é pelo diálogo e conscientização. É necessário conscientizar aqueles que assistem, repetem ou indiretamente contribuem com o bullying, pois eles também mantêm o sistema de agressividade funcionando.
 
