@@ -12,7 +12,9 @@ Também é na escola o lugar onde os reflexos da sociedade fazem com que se crie
 
 Na escola, os cruéis padrões de beleza e comportamento ditados pela sociedade aparecem como normas. Em geral, um grupo dominante reafirma e dita esses padrões dentro do âmbito escolar, fazendo com que se estabeleça uma regra (a normalidade) e tudo aquilo que fuja dessa regra seja considerado como inferior e digno de sofrimento e exclusão. O grau de popularidade dos que se consideram superiores e a sua maior aceitação pelo grupo fazem com que eles se sintam no direito de tratar mal aqueles que não são populares e não se enquadram no padrão do grupo.
 
-![](https://youtu.be/Z6sHaGenVl0)
+![](https://youtu.be/psieH5qBIpk)
+
+
 
 Como solucionar o bullying?
 
